@@ -1,4 +1,4 @@
 # Studentu saraksts
 
-## Oskars
+## Oskars Z.
 
